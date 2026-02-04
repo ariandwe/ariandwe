@@ -1,5 +1,5 @@
 # 💫 About Me:
-My name is Arian, I'm from Peru. I'm developer junior.
+My name is Arian, I'm from Peru. I'm developer Sr.
 
 
 ## 🌐 Socials:
